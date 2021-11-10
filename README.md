@@ -1,6 +1,14 @@
 # [culture.softreck.dev](https://culture.softreck.dev/#/)
 
 
+Skupiamy się na dobrej organizacji pracy poprzez transparentną komunikację
+
+Tworzymy najlepsze warunki w zalezności od celów.
+
+Budujemy kulturę organizacji wspierającą indywidualne cele każdego z nas.
+
+Każźdego dnia rozwijamy siebie podczas wspólnej pracy by jeszcze lepiej się rozumieć.
+
 
 ## Wartości 
 
